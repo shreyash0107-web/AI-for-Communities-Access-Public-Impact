@@ -1,1 +1,0 @@
-# AI-for-Communities-Access-Public-Impact
